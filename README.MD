@@ -4,6 +4,7 @@
 - Prepare to start new in Chrome
 
 ## 2025-03-31 deecovana First steps
+- Trget is PentHouse - 250k for 100days
 - Continue Crimes and Shopping
 - Start in Opera
 - PreRegister and Register deecovana
