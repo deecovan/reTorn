@@ -6,6 +6,13 @@
 - Dress up and equip the gun
 - Take the job
 - Second mission to kill Dummie than Gym
+- Prepare HappyJump with Ecstasy on mission Effective Stat Building
+  It gives additional Energy without Xanax
+  Prepare: 
+  - rent Villa minimum - 100 days for 10k/30days
+  - Wait for Hapiness
+  - Eat Candies as much as you can
+  - Eat Ecstasy and go Gym 
 
 ## 2025-03-31 deecovana First steps
 - Trget is PentHouse - 250k for 100days
